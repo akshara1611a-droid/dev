@@ -1,1 +1,1 @@
-Aksharaa reddyy chennu
+Aksharaa reddy chennu
